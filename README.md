@@ -1,1 +1,0 @@
-# AI-For-Bharat-Hackathon
